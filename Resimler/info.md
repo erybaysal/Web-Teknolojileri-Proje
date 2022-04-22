@@ -1,1 +1,2 @@
+#### Gerekli fotoğraflar için oluşturuldu
 
